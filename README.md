@@ -5,4 +5,4 @@ Seid Hassen Yesuf
 Josephine Laure
 Dhaval Patel
 Afolashade Otujo
-Member 7 
+Tobi Oladimeji
