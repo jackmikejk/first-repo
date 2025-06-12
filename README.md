@@ -1,5 +1,5 @@
-# first-repo - Group 5
-Michael Jackson - 
+# Website Portfolio - Group 5
+Michael Jackson 
 
 Harmanjot Singh Jhajj 
 
